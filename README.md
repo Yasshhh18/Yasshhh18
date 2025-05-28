@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Yasshhh18
 - 👀 I’m interested in CoDing
-- 🌱 I’m currently learning COMPUTER ENGINEERING FROM SIGCE
+- 🌱 I’m currently growing at COMPUTER ENGINEERING Learing From SIGCE .
 - 💞️ I’m looking to collaborate on ANYTHING
 - 📫 How to reach me through insta or dm
-- 😄 Pronouns: syntax error
+- 😄 Pronouns: 404 Not found
 - ⚡ Fun fact: error
 
 <!---
